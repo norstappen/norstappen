@@ -8,3 +8,5 @@
 <a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled426_20261108155636.png" width="160"></img>
  </a>
+ 
+[pt-everypony](https://github.com/pt-everypony) + **(AS 5POKE) →** [pt-awards](https://github.com/pt-awards) + [knox-event](https://github.com/Knox-Event) + more I'm so lazy to refill this 
