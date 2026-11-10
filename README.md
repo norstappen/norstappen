@@ -9,4 +9,4 @@
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled426_20261108155636.png" width="160"></img>
  </a>
  
-[pt-everypony](https://github.com/pt-everypony) + [knox-event](https://github.com/Knox-Event) + [piddlesjet](https://github.com/piddlesjet) + [animal-town](https://github.com/animal-town) + <ins>**(AS 5POKE) →**</ins> [pt-awards](https://github.com/pt-awards) + [pt-walk-of-fame](https://github.com/pt-walk-of-fame) + [pt-stars](https://github.com/pt-stars) + [pt-nominations](https://github.com/pt-nominations) 
+[pt-everypony](https://github.com/pt-everypony) + [knox-event](https://github.com/Knox-Event) + [THE-TEMPIST](https://github.com/THE-TEMPIST) + [piddlesjet](https://github.com/piddlesjet) + [animal-town](https://github.com/animal-town) + <ins>**(AS 5POKE) →**</ins> [pt-awards](https://github.com/pt-awards) + [pt-walk-of-fame](https://github.com/pt-walk-of-fame) + [pt-stars](https://github.com/pt-stars) + [pt-nominations](https://github.com/pt-nominations) 
