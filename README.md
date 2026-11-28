@@ -11,6 +11,6 @@
 
 <ins>**AWARDS**</ins>
 
-[pt-everypony](https://github.com/pt-everypony) + [knox-event](https://github.com/Knox-Event) + [pt-ship-nominations](https://github.com/pt-ship-nominations) + [THE-TEMPIST](https://github.com/THE-TEMPIST) + [piddlesjet](https://github.com/piddlesjet) + [pony-town-nominations](https://github.com/pony-town-nominations) + [pt-friendships](https://github.com/pt-friendships) <ins>**非常感谢你们，我可爱的小熊猫们❤**</ins> + [juminotown](https://github.com/juminotown) + [animal-town](https://github.com/animal-town) + [ponytowns-rewards](https://github.com/Ponytowns-rewards) + [pt-hall-of-fans](https://github.com/pt-hall-of-fans)ㅤ
+[pt-everypony](https://github.com/pt-everypony) + [knox-event](https://github.com/Knox-Event) + [pt-ship-nominations](https://github.com/pt-ship-nominations) + [THE-TEMPIST](https://github.com/THE-TEMPIST) + [piddlesjet](https://github.com/piddlesjet) + [pony-town-nominations](https://github.com/pony-town-nominations) + [pt-friendships](https://github.com/pt-friendships) <ins>**非常感谢你们，我可爱的小熊猫们❤**</ins> + [marvelous-pt](https://github.com/marvelous-pt) + [juminotown](https://github.com/juminotown) + [animal-town](https://github.com/animal-town) + [ponytowns-rewards](https://github.com/Ponytowns-rewards) + [pt-hall-of-fans](https://github.com/pt-hall-of-fans)ㅤ
 
 <ins>**(AS 5POKE) →**</ins> [pt-awards](https://github.com/pt-awards) + [pt-walk-of-fame](https://github.com/pt-walk-of-fame) + [pt-stars](https://github.com/pt-stars) + [pt-nominations](https://github.com/pt-nominations) 
